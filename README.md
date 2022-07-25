@@ -1,0 +1,8 @@
+- eu sou a Maria Eduarda Santos
+- eu amo sair de casa, fofocar com as best, comer, dormir
+- tenho 14 anos 
+- atualmente to namorando 
+- quero fazer faculdade de Med-veterinaria 
+-  sou do signo de leão
+-  odeio gente falsa e grossa
+-  minha data de nascimento é 03/08/2007
